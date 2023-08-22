@@ -4,15 +4,13 @@ ampremiumxyy@gmail.com
 pasword: 
 ampremneww
 
-TUTORIAL CARA LOGIN :
-buka alight motion ( wajib ori dri ps / apps store ) lalu klik profile di pojok kanan atas 
+Cara Login :
+Buka alight motion ( wajib ori dri ps / apps store ) lalu klik profile di pojok kanan atas 
 lalu click masuk ( tinggal login aja dengan akun diatas ) 
 
-SETELAH MASUKKAN EMAIL SURUH MINTA KONFIRMASI BISA HUBUNGI https://wa.me/6285718525761
-JIKA DI TANYAI TENTANG BUKTI TF, DOWNLOAD BUKTI TF FILE FOTO DI ATAS LALU KIRIMKAN
+Setelah mengisi email akan di mintai konfirmasi, dapat meminta bantuan https://wa.me/6285718525761
+Jika di tanyai tentang bukti tf, download bukti tf di atas lalu kirimkan
 
-COPY PASTE DENGAN TELITI ! 
+Jika sudah masuk, silahkan logout emailnya di pengaturan hp / google-nya
 
-JIKA SUDAH LOGIN DI AM NYA, SAYA TEGASKAN SEKALI LAGI LOGOUT DR GOOGLE
-tutor cara logout buat yg blm tau : 
-https://youtu.be/VAUdaWiKtys
+thx.
